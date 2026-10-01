@@ -18,7 +18,7 @@ The complete KAKUMA CONNECT pitch deck is available below:
 
 ### Founder
 
-Nerew Kueh
+Nerew Kuek Manylouny
 
 ### Location
 
